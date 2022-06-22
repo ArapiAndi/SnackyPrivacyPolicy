@@ -1,4 +1,4 @@
-# SnackyPrivacyPolicy
+#Privacy Policy
 
 **Termini & Condizioni**
 
